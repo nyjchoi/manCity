@@ -6,3 +6,4 @@ Kun Sergio Aguero
 David Silva
 Vincent Kompany
 Yaya Toure
+야야 뚜레
